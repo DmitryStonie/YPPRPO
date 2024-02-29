@@ -1,2 +1,2 @@
 # YPPRPO
-For YOORPO tasks
+No tasks, only chill
